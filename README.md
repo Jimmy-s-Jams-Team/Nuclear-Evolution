@@ -1,2 +1,2 @@
 # Jam-Packed
-A pack originally though of by freedomtalesans
+A pack originally thought of by freedomtalesans
